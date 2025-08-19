@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @xGuizinh0x
 - 👀 I’m interested in games
 - 🌱 I’m currently learning program
-- 📫 How to reach me 
 - 😄 Pronouns: he/him
 
 
